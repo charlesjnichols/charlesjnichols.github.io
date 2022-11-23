@@ -8,7 +8,7 @@
 ##### Strength
 Deadlifts: 8 rep max
 
-***Wesley: 55***
+***Wesley: 55***<br>
 ***Emma: 85***
 
 ##### Skill:
@@ -19,7 +19,7 @@ Jumping Pullups
 (House Loop) Run<br>
 5 Box Pushups
 
-***Wesley: 5:28***
+***Wesley: 5:28***<br>
 ***Emma: 6:07***
 
 ##### Fun:
@@ -33,7 +33,7 @@ Balance Board Throw and Catch
 ##### Strength
 Bench Press: 3 rep max
 
-***Charlie: 60<br>***
+***Charlie: 60***<br>
 ***Wesley: 50***
 
 ##### Skill:
