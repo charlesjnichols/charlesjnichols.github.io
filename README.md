@@ -1,9 +1,9 @@
 # Wednesday 11/23/2022
 ##### Warmup
-100 Single Unders
-50 Baskball Shots
-10 Box Jumps
-5 Monkey Bars
+100 Single Unders<br>
+50 Baskball Shots<br>
+10 Box Jumps<br>
+5 Monkey Bars<br>
 
 ##### Strength
 Deadlifts: 8 rep max
