@@ -1,3 +1,31 @@
+# Wednesday 11/23/2022
+##### Warmup
+100 Single Unders
+50 Baskball Shots
+10 Box Jumps
+5 Monkey Bars
+
+##### Strength
+Deadlifts: 8 rep max
+
+***Wesley: 55***
+***Emma: 85***
+
+##### Skill:
+Jumping Pullups
+
+##### Workout:
+3 Rounds for Time<br>
+(House Loop) Run<br>
+5 Box Pushups
+
+***Wesley: 5:28***
+***Emma: 6:07***
+
+##### Fun:
+Balance Board Throw and Catch
+
+---
 # Tuesday 11/22/2022
 ##### Warmup
 100 Single Unders
