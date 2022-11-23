@@ -22,6 +22,8 @@ Jumping Pullups
 ***Wesley: 5:28***<br>
 ***Emma: 6:07***
 
+<img src="img/PXL_20221123_200206086.jpg" width="200" height="200" /> <img src="img/PXL_20221123_200143390.jpg" width="200" height="200" />
+
 ##### Fun:
 Balance Board Throw and Catch
 
