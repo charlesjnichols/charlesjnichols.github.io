@@ -1,4 +1,4 @@
-# Wednesday 11/23/2022
+# Thursday 11/24/2022
 ##### Warmup
 100 Single Unders<br>
 50 Baskball Shots<br>
