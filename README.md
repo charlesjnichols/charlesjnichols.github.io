@@ -19,7 +19,7 @@ Balance
 
 ##### Workout:
 4 Rounds for Time<br>
-_Turkey Trot_
+_Turkey Trot_<br>
 5 Situps
 
 ***CJ: 10:20***<br>
