@@ -2,6 +2,33 @@
 ##### Warmup
 100 Single Unders<br>
 50 Baskball Shots<br>
+10 Jumping Pullups<br>
+
+##### Strength
+Squat: 8x3<br>
+Bench: 8x3<br>
+Deadlifts: 8x3
+
+***CJ: 115,105,135***<br>
+***Carolyn: 35***
+
+
+##### Skill:
+Jumping Pullups<br>
+Balance
+
+##### Workout:
+4 Rounds for Time<br>
+_Turkey Trot_
+5 Situps
+
+***CJ: 10:20***<br>
+***Carolyn: 12:00***
+
+# Wednesday 11/23/2022
+##### Warmup
+100 Single Unders<br>
+50 Baskball Shots<br>
 10 Box Jumps<br>
 5 Monkey Bars<br>
 
