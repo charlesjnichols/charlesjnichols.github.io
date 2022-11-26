@@ -1,3 +1,21 @@
+# Saturday 11/26/2022
+##### Warmup
+100 Single Unders<br>
+
+##### Cardio
+Run 90 / Walk 90 x 8
+
+##### Skill:
+
+##### Workout:
+EMOM for 15 minutes<br>
+Minute 1: 18 Air Squats<br>
+Minute 2: 12 Push Press (45 lb)<br>
+Minute 3: 6 Dips<br>
+
+***CJ***<br>
+
+
 # Thursday 11/24/2022
 ##### Warmup
 100 Single Unders<br>
