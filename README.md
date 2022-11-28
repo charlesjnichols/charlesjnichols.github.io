@@ -1,3 +1,20 @@
+# Monday 11/26/2022
+##### Warmup
+300 Single Unders<br>
+
+##### Cardio
+Run 2min / Walk 1min x 6
+
+##### Workout:
+Fran<br>
+21-15-9 reps for time of:<br>
+Thrusters (65)<br>
+Pull-Ups<br>
+
+***CJ 3:49***<br>
+
+***CJ***<br>
+
 # Saturday 11/26/2022
 ##### Warmup
 300 Single Unders<br>
