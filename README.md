@@ -11,7 +11,7 @@ Fran<br>
 Thrusters (65)<br>
 Pull-Ups<br>
 
-***CJ 3:49***<br>
+***CJ 3:49  /scalled pullups/***<br>
 
 
 # Saturday 11/26/2022
