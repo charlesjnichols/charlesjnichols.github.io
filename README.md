@@ -13,7 +13,6 @@ Pull-Ups<br>
 
 ***CJ 3:49***<br>
 
-***CJ***<br>
 
 # Saturday 11/26/2022
 ##### Warmup
