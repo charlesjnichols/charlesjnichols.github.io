@@ -12,6 +12,7 @@ Thrusters (65)<br>
 Pull-Ups<br>
 
 ***CJ 3:49  /scalled pullups/***<br>
+***Charleie 2:52  /scalled/***<br>
 
 
 # Saturday 11/26/2022
