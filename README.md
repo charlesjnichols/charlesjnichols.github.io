@@ -12,7 +12,7 @@ Every 3 minutes for 4 rounds complete:<br>
 14 walking lunges<br>
 14 burpee box step-ups<br>
 
-***CJ 3:49***<br>
+***CJ***<br>
 
 # Monday 11/26/2022
 ##### Warmup
