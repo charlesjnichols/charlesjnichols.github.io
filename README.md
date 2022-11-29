@@ -3,9 +3,9 @@
 30sec/30sec x 10 Single Unders<br>
 
 ##### Strength
-BSx8 95-115-135
-BPx8 95-115-125
-DLx8 115-135-155
+BSx8 95-115-135<br>
+BPx8 95-115-125<br>
+DLx8 115-135-155<br>
 
 ##### Workout:
 Every 3 minutes for 4 rounds complete:<br>
