@@ -1,3 +1,19 @@
+# Tuesday 11/27/2022
+##### Warmup
+30sec/30sec x 10 Single Unders<br>
+
+##### Strength
+BSx8 95-115-135
+BPx8 95-115-125
+DLx8 115-135-155
+
+##### Workout:
+Every 3 minutes for 4 rounds complete:<br>
+14 walking lunges<br>
+14 burpee box step-ups<br>
+
+***CJ 3:49  ***<br>
+
 # Monday 11/26/2022
 ##### Warmup
 300 Single Unders<br>
