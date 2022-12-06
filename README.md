@@ -1,6 +1,6 @@
 # Tuesday 12/06/2022
 ##### Workout:
-10x 3:00 Run ; :30 Walk
+8x 3:00 Run ; :30 Walk
 
 ***CJ***<br>
 
