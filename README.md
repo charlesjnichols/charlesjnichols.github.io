@@ -1,3 +1,25 @@
+# Tuesday 12/06/2022
+##### Workout:
+10x 3:00 Run ; :30 Walk
+
+***CJ***<br>
+
+# Sunday 12/04/2022
+##### Workout:
+10x 2:00 Run ; :30 Walk
+
+***CJ***<br>
+
+# Thursday 12/01/2022
+##### Workout:
+15 rounds
+for round number<br>
+handstand hold<br>
+situps<br>
+
+***Charlie***<br>
+***Wesley***<br>
+
 # Tuesday 11/27/2022
 ##### Warmup
 30sec/30sec x 10 Single Unders<br>
