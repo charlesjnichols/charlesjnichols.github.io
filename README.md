@@ -1,3 +1,17 @@
+# Saturday 12/11/2022
+##### Workout:
+BSx8 95-115-145x2<br>
+BPx8 95-115-115x3<br>
+DLx8 115-135-165x2<br>
+
+***CJ***<br>
+
+# Friday 12/10/2022
+##### Workout:
+6x 3:00 Run ; :30 Walk
+
+***CJ***<br>
+
 # Tuesday 12/06/2022
 ##### Workout:
 8x 3:00 Run ; :30 Walk
