@@ -1,3 +1,9 @@
+# Saturday 12/17/2022
+##### Workout:
+2 Mile Run 22:00
+
+***CJ***<br>
+
 # Monday 12/13/2022
 ##### Workout:
 6x 4:00 Run ; 1:30 Walk
