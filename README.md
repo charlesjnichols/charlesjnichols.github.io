@@ -1,12 +1,21 @@
+# Tuesday 01/03/2023
+##### Workout:
+4x 7min Run; 2min Walk **CJ**<br>
+
+100 Shiko **CJ** / **Emma**<br>
+
 # Monday 01/02/2023
 ##### Workout:
-40 min bike
+40 min bike **CJ** / **Wesley** / **Charlie**<br>
+
+50 Shiko **CJ**<br>
 
 # Sunday 01/01/2023
 ##### Workout:
-5k
+5k **CJ**<br>
+6x 2:00 Run ; :30 Walk **Emma**<br>
+4x 2:00 Run ; 2:00 Walk **Wesley**<br>
 
-***CJ***<br>
 # Wednesday 12/21/2022
 ##### Workout:
 8x 4:00 Run ; 30 Walk
