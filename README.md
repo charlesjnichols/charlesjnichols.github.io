@@ -1,3 +1,12 @@
+# Monday 01/02/2023
+##### Workout:
+40 min bike
+
+# Sunday 01/01/2023
+##### Workout:
+5k
+
+***CJ***<br>
 # Wednesday 12/21/2022
 ##### Workout:
 8x 4:00 Run ; 30 Walk
