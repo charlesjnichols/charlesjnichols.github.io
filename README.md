@@ -1,6 +1,7 @@
 # Thursday 01/05/2023
 ##### Workout:
 6x 7min Run; 2min Walk **CJ**<br>
+https://connect.garmin.com/modern/activity/10249654795
 
 100 Shiko **CJ**<br>
 
