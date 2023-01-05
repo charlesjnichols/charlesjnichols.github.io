@@ -1,3 +1,9 @@
+# Thursday 01/05/2023
+##### Workout:
+6x 7min Run; 2min Walk **CJ**<br>
+
+100 Shiko **CJ**<br>
+
 # Tuesday 01/03/2023
 ##### Workout:
 4x 7min Run; 2min Walk **CJ**<br>
