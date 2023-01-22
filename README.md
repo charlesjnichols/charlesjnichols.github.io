@@ -1,3 +1,8 @@
+# Sunday 01/22/2023
+##### Workout:
+30 Min steady on Trainer **CJ**<br>
+https://connect.garmin.com/modern/activity/10361768545
+
 # Saturday 01/21/2023
 ##### Workout:
 20 Min mix w/ sprints on TM **CJ**<br>
