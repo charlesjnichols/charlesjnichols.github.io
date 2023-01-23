@@ -1,20 +1,25 @@
+# Monday 01/23/2023
+##### Workout:
+Run 40 Min to the hills and back **CJ**<br>
+https://connect.garmin.com/modern/activity/10367414006
+
 # Sunday 01/22/2023
 ##### Workout:
-40 Min steady on Trainer **CJ**<br>
+Ride 40 Min steady on Trainer **CJ**<br>
 https://connect.garmin.com/modern/activity/10361768545
 
 # Saturday 01/21/2023
 ##### Workout:
-20 Min mix w/ sprints on TM **CJ**<br>
+Run 20 Min mix w/ sprints on TM **CJ**<br>
 
 # Wednesday 01/18/2023
 ##### Workout:
-Church Weis 7min Run; 1min Walk **CJ**<br>
+Run - Church Weis 7min Run; 1min Walk **CJ**<br>
 https://connect.garmin.com/modern/activity/10336235816
 
 # Monday 01/16/2023
 ##### Workout:
-Weis-Church 5min Run; 1min Walk **CJ**<br>
+Run - Weis-Church 5min Run; 1min Walk **CJ**<br>
 https://connect.garmin.com/modern/activity/10321917246
 
 100 Shiko **CJ**<br>
