@@ -3,7 +3,7 @@
 Ride 30 5:1 Interval **CJ**<br>
 https://connect.garmin.com/modern/activity/10385563417
 
-<img src="/img/PXL_20230126_175026902.jpg" style="width:50px;"/>
+<img src="/img/PXL_20230126_175026902.jpg" style="width:100px;"/>
 
 
 # Monday 01/23/2023
