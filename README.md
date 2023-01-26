@@ -1,3 +1,8 @@
+# Thursday 01/26/2023
+##### Workout:
+Ride 30 5:1 Interval **CJ**<br>
+https://connect.garmin.com/modern/activity/10385563417
+
 # Monday 01/23/2023
 ##### Workout:
 Run 40 Min to the hills and back **CJ**<br>
