@@ -3,16 +3,13 @@
 https://connect.garmin.com/modern/activity/10385563417 **CJ**<br>
 ![image](https://user-images.githubusercontent.com/61768219/214926174-e24414e7-b56f-4852-bb6f-b8eb52b26f2b.png)
 
-
-
-
 <img src="/img/PXL_20230126_175026902.jpg" style="width:100px;"/>
-
 
 # Monday 01/23/2023
 ##### Workout:
-Run 40 Min to the hills and back **CJ**<br>
-https://connect.garmin.com/modern/activity/10367414006
+Run 40 Min to the hills and back https://connect.garmin.com/modern/activity/10367414006 **CJ**<br>
+![image](https://user-images.githubusercontent.com/61768219/214926641-16216048-ef11-4981-bc5b-b04e9a2e2474.png)
+
 
 # Sunday 01/22/2023
 ##### Workout:
