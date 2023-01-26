@@ -3,7 +3,7 @@
 Ride 30 5:1 Interval **CJ**<br>
 https://connect.garmin.com/modern/activity/10385563417
 
-Lunch: Pork Stir-Fry (https://photos.app.goo.gl/MGt4FsbUVbeB1DP68)
+(/food/PXL_20230126_175026902.jpg  "Pork Stir-Fry")
 
 # Monday 01/23/2023
 ##### Workout:
