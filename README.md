@@ -1,7 +1,10 @@
 # Thursday 01/26/2023
 ##### Workout:
-Ride 30 5:1 Interval **CJ**<br>
-https://connect.garmin.com/modern/activity/10385563417
+https://connect.garmin.com/modern/activity/10385563417 **CJ**<br>
+![image](https://user-images.githubusercontent.com/61768219/214926174-e24414e7-b56f-4852-bb6f-b8eb52b26f2b.png)
+
+
+
 
 <img src="/img/PXL_20230126_175026902.jpg" style="width:100px;"/>
 
