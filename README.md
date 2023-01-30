@@ -1,7 +1,7 @@
 
 # Monday 01/30/2023
 ##### Workout:
-Run 8x400m Intervals
+Run 8x400m (Threshold 6:00) Intervals
 https://connect.garmin.com/modern/activity/10411749631 **CJ**<br>
 ![image](https://user-images.githubusercontent.com/61768219/215567044-25461e74-5887-4796-88a8-23cac03db0fe.png)
 
