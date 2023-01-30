@@ -1,3 +1,18 @@
+
+# Monday 01/30/2023
+##### Workout:
+Run 8x400m Intervals
+https://connect.garmin.com/modern/activity/10411749631 **CJ**<br>
+![image](https://user-images.githubusercontent.com/61768219/215567044-25461e74-5887-4796-88a8-23cac03db0fe.png)
+
+
+# Saturday 01/28/2023
+##### Workout:
+Run 45 Min
+https://connect.garmin.com/modern/activity/10399940875 **CJ**<br>
+![image](https://user-images.githubusercontent.com/61768219/215567212-db53463c-4c23-4a16-8ad9-5f360552a9c7.png)
+
+
 # Thursday 01/26/2023
 ##### Workout:
 https://connect.garmin.com/modern/activity/10385563417 **CJ**<br>
