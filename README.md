@@ -1,3 +1,8 @@
+# Tuesday 01/31/2023
+##### Workout:
+\https://connect.garmin.com/modern/activity/10417340793 **CJ**<br>
+![image](https://user-images.githubusercontent.com/61768219/215819152-69534435-68c7-4186-8fc3-bea1c6c0643a.png)
+
 
 # Monday 01/30/2023
 ##### Workout:
