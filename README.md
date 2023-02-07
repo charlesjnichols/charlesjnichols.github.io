@@ -1,3 +1,12 @@
+# Tuesday 02/07/2023
+##### Workout:
+https://connect.garmin.com/modern/activity/10465158844
+![image](https://user-images.githubusercontent.com/61768219/217362054-96f37020-8e80-434f-b195-ce90b16023e2.png)
+
+# Friday 02/03/2023
+##### Workout:
+Run 30 Min Z3 **CJ**<br>
+
 # Tuesday 01/31/2023
 ##### Workout:
 https://connect.garmin.com/modern/activity/10417340793 **CJ**<br>
